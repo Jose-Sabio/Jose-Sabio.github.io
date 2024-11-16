@@ -1,2 +1,2 @@
 
-Esta página web es mi presentación personal donde mostrare todos mis proyectos 
+Esta página web es mi presentación personal donde mostrare todos mis proyectos .
